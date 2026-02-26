@@ -8,7 +8,7 @@
 
 <div align="center">
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=IM+Fell+English&size=23&pause=999&color=AEAEAE&width=435&lines=%E2%9D%9D%E3%85%A4you+%E3%85%A4were%E3%85%A4+a+%E3%85%A4shitty%E3%85%A4+girlfriend+%E3%85%A4%E2%9D%9E+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+Ya+Like+A+Sister&size=22&pause=1000&color=734545&width=435&lines=%E3%85%A4%E3%85%A4do%E3%85%A4%E3%85%A4i%E3%85%A4%E3%85%A4creep%E3%85%A4%E3%85%A4U%E3%85%A4%E3%85%A4ouut%E3%85%A4%E3%85%A4%3F+%3F)](https://git.io/typing-svg)
 
 </div>
 
