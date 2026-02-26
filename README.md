@@ -14,8 +14,18 @@
 
 
 <p align="center">.ㅤㅤㅤㅤsleepyㅤㅤㅤㅤbunnycornㅤㅤㅤㅤdeergirlㅤㅤㅤㅤ﹢</p>
-
-
+ ㅤ ㅤ
+ㅤ
+<div align="center">
+<details>
+<summary>ㅤㅤ ݂۫ ·ㅤㅤ✚ 𓏼ㅤㅤinfoㅤㅤ(´◞ ♡𓏼 )</summary>
+<ul><li>i ' mㅤveryㅤsociallyㅤineptㅤandㅤdeeplyㅤafraidㅤofㅤcommunicatingㅤwithㅤothersㅤ.ㅤplsㅤdon ' tㅤtryㅤtoㅤstrikeㅤupㅤaㅤconvoㅤwithㅤmeㅤ!</li>
+<li>c + hㅤisㅤperfectlyㅤokaㅤ^_^ㅤpleaseㅤbeㅤniceㅤtoㅤmeㅤ,ㅤiㅤhaveㅤaㅤfragileㅤheartㅤ.</li></ul>
+<li>iㅤtakeㅤeverythingㅤveryㅤseriouslyㅤandㅤhaveㅤtroubleㅤunderstandingㅤmostㅤsocialㅤcuesㅤ,ㅤtoneㅤtagsㅤareㅤappreciatedㅤ.</li></ul>
+<li>i ' mㅤanㅤageㅤ+ㅤpetㅤregressorㅤyayㅤ!</li></ul>
+<li>proshipㅤ/ㅤdarkshipㅤ,ㅤlolishoㅤ,ㅤscreamㅤ7ㅤsupportersㅤdoㅤnotㅤinteractㅤ.</li></ul>
+</details>
+</div>
 
 <p align="center"><img width="580" src="https://github.com/user-attachments/assets/f6235175-0fb8-42b6-b984-8d6f40023c70"></p>
 
