@@ -17,9 +17,9 @@
 <p align="center">・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・</p>
 
 
-<p align="center">that ㅤㅤone ㅤㅤoomf ㅤㅤwhoㅤㅤneverㅤㅤstopsㅤㅤtalkingㅤㅤaboutㅤㅤtamber</p>
-<p align="center">tara ㅤㅤcarpenter ㅤㅤfictkin ㅤㅤ+ㅤㅤdefender</p>
-<p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤyellowjackets ㅤㅤfan</p>
+<p align="center">♰ㅤㅤ﹒ㅤㅤyuriㅤㅤobsessedㅤㅤgirlfailureㅤㅤ(｡ᵕ ◞ _◟)ㅤㅤilmgf</p>
+<p align="center">꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱</p>
+<p align="center">໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan</p>
 ㅤ
 
 
