@@ -12,6 +12,11 @@
 
 </div>
 
+
+<p align="center">.ㅤㅤㅤㅤsleepyㅤㅤㅤㅤbunnycornㅤㅤㅤㅤdeergirlㅤㅤㅤㅤ﹢</p>
+
+
+
 <p align="center"><img width="580" src="https://github.com/user-attachments/assets/f6235175-0fb8-42b6-b984-8d6f40023c70"></p>
 
 <p align="center">・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・</p>
