@@ -1,6 +1,13 @@
 <p align="center"><img width="580" src="https://github.com/user-attachments/assets/5d33b465-7b7b-45a1-bb23-e23ea868a555"></p>
 
 <div align="center">
+
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=d66c5e&label=+ㅤbunnies+ㅤ)
+
+</div>
+
+
+<div align="center">
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=novatorem&show_offline=false&background_color=0a0c10&interchange=false&bar_color=564e4e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
   
