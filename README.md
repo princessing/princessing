@@ -36,9 +36,9 @@
 
 
 
-<p align="center">♰ㅤㅤ﹒ㅤㅤsleepiestㅤㅤbunniㅤㅤprincessㅤㅤ(｡ᵕ ◞ _◟)ㅤㅤilmgf</p>
-<p align="center">꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱</p>
-<p align="center">໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan</p>
+<p align="center">$\color{#fcccce}{\textsf{♰ㅤㅤ﹒ㅤㅤsleepiestㅤㅤbunniㅤㅤprincessㅤㅤ(｡ᵕ ◞ ◟)ㅤㅤilmgf}}$</p>
+<p align="center">$\color{#ffffff}{\textsf{꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱}}$</p>
+<p align="center">$\color{#c2938c}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
 ㅤ
 
 
