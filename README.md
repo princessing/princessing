@@ -1,8 +1,8 @@
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/5d33b465-7b7b-45a1-bb23-e23ea868a555"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f37d4fec-086d-4f88-9131-4e0d7c4d94c4"></p>
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=d66c5e&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=f5babc&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -15,17 +15,15 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+Ya+Like+A+Sister&size=22&pause=1000&color=734545&width=435&lines=%E3%85%A4%E3%85%A4do%E3%85%A4%E3%85%A4i%E3%85%A4%E3%85%A4creep%E3%85%A4%E3%85%A4U%E3%85%A4%E3%85%A4ouut%E3%85%A4%E3%85%A4%3F+%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Twinkle+Star&size=22&pause=1000&color=f5babc&width=435&lines=%E3%85%A4%E3%85%A4do%E3%85%A4%E3%85%A4i%E3%85%A4%E3%85%A4creep%E3%85%A4%E3%85%A4U%E3%85%A4%E3%85%A4ouut%E3%85%A4%E3%85%A4%3F+%3F)](https://git.io/typing-svg)
 
 </div>
 
-
-<p align="center">.ㅤㅤㅤㅤsleepyㅤㅤㅤㅤbunnycornㅤㅤㅤㅤdeergirlㅤㅤㅤㅤ﹢</p>
  ㅤ ㅤ
 ㅤ
 <div align="center">
 <details>
-<summary>ㅤㅤ ݂۫ ·ㅤㅤ✚ 𓏼ㅤㅤinfoㅤㅤ(´◞ ♡𓏼 )</summary>
+<summary>ㅤㅤ ݂۫ ·ㅤㅤclickㅤㅤmiㅤㅤ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა</summary>
 <ul><li>i ' mㅤveryㅤsociallyㅤineptㅤandㅤdeeplyㅤafraidㅤofㅤcommunicatingㅤwithㅤothersㅤ.ㅤplsㅤdon ' tㅤtryㅤtoㅤstrikeㅤupㅤaㅤconvoㅤwithㅤmeㅤ!</li>
 <li>c + hㅤisㅤperfectlyㅤokaㅤ^_^ㅤpleaseㅤbeㅤniceㅤtoㅤmeㅤ,ㅤiㅤhaveㅤaㅤfragileㅤheartㅤ.</li></ul>
 <li>iㅤtakeㅤeverythingㅤveryㅤseriouslyㅤandㅤhaveㅤtroubleㅤunderstandingㅤmostㅤsocialㅤcuesㅤ,ㅤtoneㅤtagsㅤareㅤappreciatedㅤ.</li></ul>
@@ -34,9 +32,8 @@
 </details>
 </div>
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f6235175-0fb8-42b6-b984-8d6f40023c70"></p>
+<p align="center"><img width="480" src="https://github.com/user-attachments/assets/27bfa68d-a04b-4c15-af17-2a41085bd6c9"></p>
 
-<p align="center">・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・</p>
 
 
 <p align="center">♰ㅤㅤ﹒ㅤㅤyuriㅤㅤobsessedㅤㅤgirlfailureㅤㅤ(｡ᵕ ◞ _◟)ㅤㅤilmgf</p>
@@ -45,14 +42,11 @@
 ㅤ
 
 
-<p align="center"><img width="200" src="https://github.com/user-attachments/assets/9f60696f-a115-45a0-ade9-d3ded6edb058"></p>
-ㅤ
-
 <div align="center">
 
 [𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://taracarpentr.straw.page)
-┊    [𝐭𝐢𝐤𝐭𝐨𝐤](https://www.tiktok.com/@tambercoded)
-┊    [𝐭𝐰𝐢𝐭𝐭𝐞𝐫](https://twitter.com/tarasfreckles)
+ㅤㅤ┊ㅤㅤ[𝐭𝐢𝐤𝐭𝐨𝐤](https://www.tiktok.com/@tambercoded)
+ㅤㅤ┊ㅤㅤ[𝐭𝐰𝐢𝐭𝐭𝐞𝐫](https://twitter.com/tarasfreckles)
 
 </div>
 
@@ -60,4 +54,4 @@
 
 ㅤ
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/5d33b465-7b7b-45a1-bb23-e23ea868a555"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f37d4fec-086d-4f88-9131-4e0d7c4d94c4"></p>
