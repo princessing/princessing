@@ -44,7 +44,7 @@
 
 <div align="center">
 
-[rentry](https://bunnycarpenter.straw.page)
+[rentry](https://rentry.co/taracarpenter)
 ㅤㅤ┊ㅤㅤ[tiktok](https://www.tiktok.com/@tambercoded)
 ㅤㅤ┊ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
