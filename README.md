@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Twinkle+Star&size=22&pause=1000&color=ffffff&width=435&lines=%E3%85%A4%E3%85%A4do%E3%85%A4%E3%85%A4i%E3%85%A4%E3%85%A4creep%E3%85%A4%E3%85%A4U%E3%85%A4%E3%85%A4ouut%E3%85%A4%E3%85%A4%3F+%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Twinkle+Star&size=15&duration=4000&pause=2&color=FFFFFF&center=true&width=435&lines=i%E3%85%A4%E3%85%A4love%E3%85%A4%E3%85%A4love%E3%85%A4%E3%85%A4love%E3%85%A4%E3%85%A4it%E3%85%A4%E3%85%A4!;my%E3%85%A4%E3%85%A4exclusive%E3%85%A4%E3%85%A4royal%E3%85%A4%E3%85%A4canterlot%E3%85%A4%E3%85%A4wedding%E3%85%A4%E3%85%A4playset%E3%85%A4%E3%85%A4!)](https://git.io/typing-svg)
 
 </div>
 
