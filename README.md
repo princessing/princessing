@@ -1,8 +1,8 @@
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f37d4fec-086d-4f88-9131-4e0d7c4d94c4"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/c8418296-9090-41aa-b088-f31297cc8a30"></p>
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=f5babc&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=8f2222&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -32,13 +32,13 @@
 </details>
 </div>
 
-<p align="center"><img width="480" src="https://github.com/user-attachments/assets/93688d55-d06f-4db7-ad88-d886507bad99"></p>
+<p align="center"><img width="480" src="https://github.com/user-attachments/assets/2cb978dd-185e-47ab-a9bb-e14f4acb09d5"></p>
 
 
 
-<p align="center">$\color{#fcccce}{\textsf{♰ㅤㅤ﹒ㅤㅤsleepiestㅤㅤbunniㅤㅤprincessㅤㅤ(｡ᵕ ◞ ◟)ㅤㅤilmgf}}$</p>
+<p align="center">$\color{#ffffff}{\textsf{♰ㅤㅤ﹒ㅤㅤsleepiestㅤㅤbunniㅤㅤprincessㅤㅤ(｡ᵕ ◞ ◟)ㅤㅤilmgf}}$</p>
 <p align="center">$\color{#ffffff}{\textsf{꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱}}$</p>
-<p align="center">$\color{#c2938c}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
+<p align="center">$\color{#ffffff}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
 ㅤ
 
 
@@ -54,4 +54,4 @@
 
 ㅤ
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f37d4fec-086d-4f88-9131-4e0d7c4d94c4"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/c8418296-9090-41aa-b088-f31297cc8a30"></p>
