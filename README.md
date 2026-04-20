@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cossette+Titre&duration=4400&pause=800&color=FFFFFF&center=true&width=435&lines=%E3%80%80come%E3%80%80+touch%E3%80%80+it%E3%80%80+%2C%E3%80%80+see%E3%80%80+no%E3%80%80+evil%E3%80%80+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cossette+Titre&duration=4400&pause=800&color=d9d9d9&center=true&width=435&lines=%E3%80%80come%E3%80%80+touch%E3%80%80+it%E3%80%80+%2C%E3%80%80+see%E3%80%80+no%E3%80%80+evil%E3%80%80+.)](https://git.io/typing-svg)
 
 </div>
 
