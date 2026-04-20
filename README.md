@@ -45,7 +45,7 @@
 <div align="center">
 
 [rentry](https://rentry.co/taracarpenter)
-ㅤㅤ┊ㅤㅤ[tiktok](https://www.tiktok.com/@tambercoded)
+ㅤㅤ┊ㅤㅤ[tiktok](https://www.tiktok.com/@princessiing)
 ㅤㅤ┊ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
 </div>
