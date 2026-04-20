@@ -32,7 +32,7 @@
 </details>
 </div>
 
-<p align="center"><img width="480" src="https://github.com/user-attachments/assets/2cb978dd-185e-47ab-a9bb-e14f4acb09d5"></p>
+<p align="center"><img width="480" src="https://github.com/user-attachments/assets/f5f6020a-a220-421c-b43e-46a10a39c720"></p>
 
 
 
