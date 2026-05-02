@@ -44,7 +44,7 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/taracarpenter)
+[rentry](https://rentry.co/bittr)
 ㅤㅤ┊ㅤㅤ[tiktok](https://www.tiktok.com/@princessiing)
 ㅤㅤ┊ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
