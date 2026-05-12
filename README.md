@@ -1,8 +1,8 @@
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/24ec74ee-7b5b-48d7-9c6e-1f0315a06c6c"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/1c5d1b7f-a6a5-4243-b9ea-f14e651a7e34"></p>
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=8f2222&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffd4f3&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -15,38 +15,26 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cossette+Titre&duration=4400&pause=800&color=d9d9d9&center=true&width=435&lines=%E3%80%80come%E3%80%80+touch%E3%80%80+it%E3%80%80+%2C%E3%80%80+see%E3%80%80+no%E3%80%80+evil%E3%80%80+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Twinkle+Star&size=23&duration=6000&pause=976&color=FFE3FE&center=true&width=435&lines=once+%E2%80%8E+%E2%80%8E+%E2%80%8E+upon+%E2%80%8E+%E2%80%8E+%E2%80%8E+a+%E2%80%8E+%E2%80%8E+%E2%80%8E+dream+%E2%80%8E+%E2%80%8E+%E2%80%8E+%EF%BD%A1+%EF%BD%A1+%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%99%A1)](https://git.io/typing-svg)
 
 </div>
 
- ㅤ ㅤ
-ㅤ
-<div align="center">
-<details>
-<summary>ㅤㅤ ݂۫ ·ㅤㅤclickㅤㅤmiㅤㅤ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა</summary>
-<ul><li>i ' mㅤveryㅤsociallyㅤineptㅤandㅤdeeplyㅤafraidㅤofㅤcommunicatingㅤwithㅤothersㅤ.ㅤplsㅤdon ' tㅤtryㅤtoㅤstrikeㅤupㅤaㅤconvoㅤwithㅤmeㅤ!</li>
-<li>c + hㅤisㅤperfectlyㅤokaㅤ^_^ㅤpleaseㅤbeㅤniceㅤtoㅤmeㅤ,ㅤiㅤhaveㅤaㅤfragileㅤheartㅤ.</li></ul>
-<li>iㅤtakeㅤeverythingㅤveryㅤseriouslyㅤandㅤhaveㅤtroubleㅤunderstandingㅤmostㅤsocialㅤcuesㅤ,ㅤtoneㅤtagsㅤareㅤappreciatedㅤ.</li></ul>
-<li>i ' mㅤanㅤageㅤ+ㅤpetㅤregressorㅤyayㅤ!</li></ul>
-<li>proshipㅤ/ㅤdarkshipㅤ,ㅤlolishoㅤ,ㅤscreamㅤ7ㅤsupportersㅤdoㅤnotㅤinteractㅤ.</li></ul>
-</details>
-</div>
 
-<p align="center"><img width="480" src="https://github.com/user-attachments/assets/43ec2d03-a289-435e-b636-2546c61577cd"></p>
+<p align="center"><img width="480" src="https://github.com/user-attachments/assets/dad9692e-320d-45c0-8461-133f09f9e068"></p>
 
 
 
-<p align="center">$\color{#ffffff}{\textsf{♰ㅤㅤ﹒ㅤㅤsleepiestㅤㅤbunniㅤㅤprincessㅤㅤ(｡ᵕ ◞ ◟)ㅤㅤilmgf}}$</p>
+<p align="center">$\color{#ffd4f3}{\textsf{  ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤlittlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.ㅤㅤilmgf}}$</p>
 <p align="center">$\color{#ffffff}{\textsf{꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱}}$</p>
-<p align="center">$\color{#ffffff}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
+<p align="center">$\color{#ffd4f3}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
 ㅤ
 
 
 <div align="center">
 
 [rentry](https://rentry.co/taracarpenter)
-ㅤㅤ┊ㅤㅤ[tiktok](https://www.tiktok.com/@princessiing)
-ㅤㅤ┊ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
+ㅤㅤ୨୧ㅤㅤ[tiktok](https://www.tiktok.com/@princessiing)
+ㅤㅤ୨୧ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
 </div>
 
@@ -54,4 +42,4 @@
 
 ㅤ
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/ec51343f-5267-4ddf-b2b4-3683e5a6956b"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/d723864a-af56-4e05-a594-de64bfca1c20"></p>
