@@ -1,4 +1,5 @@
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/1c5d1b7f-a6a5-4243-b9ea-f14e651a7e34"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/8b00e40f-d2ff-4e24-af21-2edb3b9420d4"></p>
+ㅤ
 
 <div align="center">
 
@@ -13,6 +14,8 @@
   
 </div>
 
+ㅤ
+
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Twinkle+Star&size=23&duration=6000&pause=976&color=FFE3FE&center=true&width=435&lines=once+%E2%80%8E+%E2%80%8E+%E2%80%8E+upon+%E2%80%8E+%E2%80%8E+%E2%80%8E+a+%E2%80%8E+%E2%80%8E+%E2%80%8E+dream+%E2%80%8E+%E2%80%8E+%E2%80%8E+%EF%BD%A1+%EF%BD%A1+%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%99%A1)](https://git.io/typing-svg)
@@ -20,7 +23,7 @@
 </div>
 
 
-<p align="center"><img width="480" src="https://github.com/user-attachments/assets/dad9692e-320d-45c0-8461-133f09f9e068"></p>
+<p align="center"><img width="300" src="https://github.com/user-attachments/assets/5ce27c60-8102-4cd6-b48f-89dfffdaaec0"></p>
 
 
 
@@ -40,6 +43,4 @@
 
 ㅤ
 
-ㅤ
-
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/d723864a-af56-4e05-a594-de64bfca1c20"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/02b8fb22-72e6-46c0-83f0-60a0c0fc13fb"></p>
