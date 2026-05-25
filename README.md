@@ -27,7 +27,7 @@
 
 
 
-<p align="center">$\color{#ffd4f3}{\textsf{  ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤlittlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.ㅤㅤagere}}$</p>
+<p align="center">$\color{#ffd4f3}{\textsf{  ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤlittlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.}}$</p>
 <p align="center">$\color{#ffffff}{\textsf{꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱}}$</p>
 <p align="center">$\color{#ffd4f3}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
 ㅤ
