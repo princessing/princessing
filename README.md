@@ -1,9 +1,9 @@
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/8b00e40f-d2ff-4e24-af21-2edb3b9420d4"></p>
+<p align="center"><img width="400" src="https://github.com/user-attachments/assets/bb0c691f-171a-43ba-861c-ced3889acd36"></p>
 ㅤ
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffd4f3&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=acd9ee&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -18,18 +18,18 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Twinkle+Star&size=23&duration=6000&pause=976&color=FFE3FE&center=true&width=435&lines=once+%E2%80%8E+%E2%80%8E+%E2%80%8E+upon+%E2%80%8E+%E2%80%8E+%E2%80%8E+a+%E2%80%8E+%E2%80%8E+%E2%80%8E+dream+%E2%80%8E+%E2%80%8E+%E2%80%8E+%EF%BD%A1+%EF%BD%A1+%E2%80%8E+%E2%80%8E+%E2%80%8E+%E2%99%A1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Mystery+Quest&size=23&duration=6000&pause=976&color=FFFFFF&center=true&width=435&lines=i+%E2%80%8E+%E2%80%8E+%E2%80%8E+♡+%E2%80%8E+%E2%80%8E+%E2%80%8E+my+%E2%80%8E+%E2%80%8E+%E2%80%8E+computer)](https://git.io/typing-svg)
 
 </div>
 
 
-<p align="center"><img width="300" src="https://github.com/user-attachments/assets/9e74a0b6-75c3-4040-beba-af4754f7c9e3"></p>
+<p align="center"><img width="300" src="https://github.com/user-attachments/assets/8d063f35-5e7d-4a35-9f59-c286808137f9"></p>
 
 
 
-<p align="center">$\color{#ffd4f3}{\textsf{  ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤlittlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.}}$</p>
+<p align="center">$\color{#ffffff}{\textsf{  ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤlittlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.}}$</p>
 <p align="center">$\color{#ffffff}{\textsf{꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱}}$</p>
-<p align="center">$\color{#ffd4f3}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
+<p align="center">$\color{#ffffff}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
 ㅤ
 
 
@@ -43,4 +43,3 @@
 
 ㅤ
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/02b8fb22-72e6-46c0-83f0-60a0c0fc13fb"></p>
