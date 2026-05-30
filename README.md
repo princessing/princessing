@@ -1,9 +1,9 @@
-<p align="center"><img width="400" src="https://github.com/user-attachments/assets/bb0c691f-171a-43ba-861c-ced3889acd36"></p>
+<p align="center"><img width="400" src="https://i.postimg.cc/1tWWHy6t/dduspbc_2422c667_7ba7_4fe0_b912_4d067f2d70a5.png"></p>
 ㅤ
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=acd9ee&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffc3f5&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -18,28 +18,31 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Mystery+Quest&size=23&duration=6000&pause=976&color=FFFFFF&center=true&width=435&lines=i+%E2%80%8E+%E2%80%8E+%E2%80%8E+♡+%E2%80%8E+%E2%80%8E+%E2%80%8E+my+%E2%80%8E+%E2%80%8E+%E2%80%8E+computer)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Mystery+Quest&duration=6000&pause=1000&color=FFFFFF&center=true&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4once%E3%85%A4%E3%85%A4upon%E3%85%A4%E3%85%A4a%E3%85%A4%E3%85%A4dream%E3%85%A4%E3%85%A4%EF%BD%A1+%EF%BD%A1%E3%85%A4%E3%85%A4%CB%9A+%E2%82%8A)](https://git.io/typing-svg)
 
 </div>
 
+<img src="https://i.postimg.cc/J0fhkXBw/Untitled951-20260529195744-(1).png" width="300" align="left">
 
-<p align="center"><img width="300" src="https://github.com/user-attachments/assets/8d063f35-5e7d-4a35-9f59-c286808137f9"></p>
+<table>
+<br>
+    <tr>
+      <td>
+        <br>
+     <p align="center"><img width="20" <img src="https://i.postimg.cc/pTJqfcj5/tumblr-7d84e5054c85a1c3a35d23d8aa5a639f-3986d039-250.gif">    ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤ littlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.</p>
+        <p align="center">꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱</p>
+<p align="center">໒꒱ㅤㅤshyestㅤㅤbunnieㅤㅤ. .ㅤㅤplsㅤㅤbㅤㅤkindㅤㅤ!</p>
+        <br>
+      </td>
+    </tr>
+    </table>
 
 
 
-<p align="center">$\color{#ffffff}{\textsf{  ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤlittlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.}}$</p>
-<p align="center">$\color{#ffffff}{\textsf{꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱}}$</p>
-<p align="center">$\color{#ffffff}{\textsf{໒꒱ㅤㅤscreamㅤㅤ,ㅤㅤyellowjacketsㅤㅤ,ㅤㅤandㅤㅤmlpㅤㅤsuperfan}}$</p>
-ㅤ
+<div align="left">
 
-
-<div align="center">
-
-[rentry](https://rentry.co/taracarpenter)
+ㅤㅤㅤㅤㅤㅤ [rentry](https://rentry.co/taracarpenter)
 ㅤㅤ୨୧ㅤㅤ[tiktok](https://www.tiktok.com/@princessiing)
 ㅤㅤ୨୧ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
 </div>
-
-ㅤ
-
