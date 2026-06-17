@@ -22,7 +22,7 @@
 
 </div>
 
-<img src="https://github.com/user-attachments/assets/f6a9f34d-227d-4797-9444-4c65918cbb7c" width="300" align="left">
+<img src="https://github.com/user-attachments/assets/ce0f515f-0cef-47f2-8f3b-de74bc9f363f" width="280" align="left">
 
 <table>
 <br>
