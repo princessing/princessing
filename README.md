@@ -42,7 +42,7 @@
 <div align="left">
 
 ㅤㅤㅤㅤㅤㅤ [rentry](https://rentry.co/taracarpenter)
-ㅤㅤ୨୧ㅤㅤ[tiktok](https://www.tiktok.com/@princessiing)
-ㅤㅤ୨୧ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
+ㅤㅤ୨୧ㅤㅤ[tiktok](https://www.tiktok.com/@bunnyremover)
+ㅤㅤ୨୧ㅤㅤ[twitter](https://twitter.com/carpentertism)
 
 </div>
